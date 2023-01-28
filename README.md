@@ -8,7 +8,7 @@
 
 ---
 
-<center><b>大道至简，至人至圣。</b></center>
+<center><b>大道至简，至仁至圣。</b></center>
 
 ---
 
